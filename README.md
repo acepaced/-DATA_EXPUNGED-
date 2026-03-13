@@ -18,4 +18,5 @@ sorry for the sudden disappearences im not doing mentally okay and i've only bee
 
 killme.png is a joke between me and me wow talkstomuself
 
-if my art gets dark pull me back
+
+click to [help](https://arab.org/click-to-help/)
