@@ -8,7 +8,7 @@ i also go by dave and many other names!
 note : my personality isnt consistent (hey like my art style) i tend to either be really energetic or just hate everything going on.
 i sincerely apologize if i act like a bitch
 
-i mainly use he/him pronouns, but they/them are very welcome.
+i mainly use he/him pronouns, but she/her and they/them are alright
 
 i like dave and bambi, happy tree friends, and like whatever little kids like i dunno,
 
