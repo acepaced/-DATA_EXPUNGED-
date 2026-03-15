@@ -12,7 +12,7 @@ i mainly use he/him pronouns, but she/her and they/them are alright
 
 i like dave and bambi, happy tree friends, and like whatever little kids like i dunno,
 
-im 13 years old politely dniuid if you are in the 16-18 range (anything older politely dni.) 
+im 13 years old politely iwec if you are in the 16-18 range (anything older politely dniuid)
 
 sorry for the sudden disappearences im not doing mentally okay and i've only been talking to the same person all day helpm
 
