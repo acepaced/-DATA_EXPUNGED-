@@ -16,7 +16,9 @@ im 13 years old politely iwec if you are in the 16-18 range (anything older poli
 
 sorry for the sudden disappearences im not doing mentally okay and i've only been talking to the same person all day helpm
 
-killme.png is a joke between me and me wow talkstomuself
+killme.png is a joke between me and me.
+
+side note : i can have really bad outburts. i WILL say horrible shit, if you dont want that dont try and talk to me when im mad
 
 
 click to [help](https://arab.org/click-to-help/)
